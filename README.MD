@@ -1,0 +1,3 @@
+You can find a type of fried dough in nearly every cuisine and one of our favorites is the Spanish churro. Many countries have adopted the churro since it's creation and our version more closely resembles the Mexican version. The doughs are very similar, but the churros you find in Spain will typically be coated in sugar whereas the ones in Mexico will be coated in cinnamon and sugar. Since we love the cinnamon and sugar combo we went that route. 
+
+We don't often feel like breaking out all of our oil to fry things. But when you have an easy churro recipe this delicious, it's absolutely worth it. They only take a few minutes to fry and will actually still taste good at room temp, making them a great party dessert! 
